@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **david.alanis.isw@unipolidgo.edu.mx**
 
-- ⚡ Fun fact **I like going to the gym**
+ 
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
